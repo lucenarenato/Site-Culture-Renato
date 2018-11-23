@@ -1,5 +1,7 @@
 # Renato Lucena
 
+### Link de ajuda:
+- https://www.jw.org/pt/publicacoes/biblia/nwt/apendice-a/como-biblia-chegou-ate-nos/
 
 # Culture Concorde ️🎶
 Discover incredible songs, carefully selected, crafted in a minimalist design.  A free player available on [iOS](https://itunes.apple.com/us/app/culture-concorde/id1212137530?ls=1&mt=8) and [macOS](https://itunes.apple.com/us/app/culture-concorde/id1088330492?ls=1&mt=12) and also coming to Android. More info : http://www.cultureconcorde.com/
